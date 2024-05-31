@@ -1,1 +1,0 @@
-# afame-technologies
